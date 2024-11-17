@@ -1,2 +1,2 @@
 # Snap of my Dashborad
-![Screenshot 2024-10-27 214236](https://github.com/user-attachments/assets/0aa6fed2-a551-464f-ad48-5cf512d81154)
+![Screenshot 2024-11-17 152211](https://github.com/user-attachments/assets/709e8682-d8ef-4ab3-ada3-c18015b22633)
